@@ -1,4 +1,4 @@
-[【上一组:室内婚纱】](http://yuzidong.github.io/photo_b) [【返回列表】](http://yuzidong.github.io/photolist)  [【下一组:室内艺术照】](http://yuzidong.github.io/photo_f)  
+[【上一组:室内婚纱】](http://yuzidong.github.io/photo_b) [【返回列表】](http://yuzidong.github.io/photolist)  [【下一组:室内艺术照】](http://yuzidong.github.io/photo_e)  
 ![d1](https://github.com/yuzidong/wedding/blob/master/images/d1.jpg?raw=true)  
 ![d2](https://github.com/yuzidong/wedding/blob/master/images/d2.jpg?raw=true)  
 ![d3](https://github.com/yuzidong/wedding/blob/master/images/d3.jpg?raw=true)  
@@ -17,4 +17,4 @@
 ![d16](https://github.com/yuzidong/wedding/blob/master/images/d16.jpg?raw=true)  
 ![d17](https://github.com/yuzidong/wedding/blob/master/images/d17.jpg?raw=true)  
 ![d18](https://github.com/yuzidong/wedding/blob/master/images/d18.jpg?raw=true)   
-[【上一组:室内婚纱】](http://yuzidong.github.io/photo_b) [【返回列表】](http://yuzidong.github.io/photolist)  [【下一组:室内艺术照】](http://yuzidong.github.io/photo_f) 
+[【上一组:室内婚纱】](http://yuzidong.github.io/photo_b) [【返回列表】](http://yuzidong.github.io/photolist)  [【下一组:室内艺术照】](http://yuzidong.github.io/photo_e) 
